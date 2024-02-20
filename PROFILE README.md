@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @Sohail Ahmed
-- 👀 I’m interested in Learning Generative AI
-- 🌱 I’m currently learning Governor Sindh Initiative For Cloud Applied Generative AI
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me (https://www.linkedin.com/in/sohail-ahmed-5a6243136/)
+- 👀 I’m working with Human Resoucrse Deparment but interested in Learning Generative AI.
+- 🌱 I’m currently learning Governor Sindh Initiative For Cerfified Cloud Applied Generative AI Program.
+- 💞️ I’m looking to collaborate on new initive and project for my skills up and learning more IT Related programs.
+- 📫 How to reach me you may contact and connect with this link (https://www.linkedin.com/in/sohail-ahmed-5a6243136/).
 - 😄 Pronouns: 
 - ⚡ Fun fact: 
 
